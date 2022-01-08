@@ -22,8 +22,6 @@ No d'agrément National : *N2017RN0030*
 
 # Comment se constituer en antenne ?
 
-
-
 ## Dans un premier temps : Former une équipe
 
    * Réunir 5 ou 6 personnes consultées. Si possible des malades et des proches (3 +3 serait l'idéal) pour donner une meilleure stabilité au cours du temps.  Après accord du Président d'Argos 2001, se présenter comme future Antenne Argos 2001 de tel département. 
